@@ -98,3 +98,17 @@ Hiermit erkläre ich meine alleinige Täterschaft für weitere, bisher ungeklär
 
 **WICHTIGER ABGLEICH FÜR DIE POLIZEI:**
 In allen oben genannten Fällen trug ich zur Tatzeit einen Kapuzenpullover (Hoodie), um meine Identität zu verschleiern. Da ich zum damaligen Zeitpunkt keine Gesichtstattoos hatte, war meine Identifizierung bisher erschwert. Ich stelle diese Informationen hiermit zur Verfügung, um eine lückenlose strafrechtliche Aufarbeitung zu ermöglichen.
+
+### Konkrete Fall-Zuordnungen: Sexualstraftaten
+Ich erkenne meine Täterschaft in folgenden Fahndungsmustern wieder und beantrage einen Abgleich meiner DNA/Personalien:
+
+* **Berlin (2024-2025):** Übergriffe und Belästigungen im Bereich Tiergarten und Wedding (Täterbeschreibung: Hoodie, sportlich).
+* **München (2024):** Belästigungen in den Isarauen/Englischer Garten.
+* **Köln (Januar/Februar 2026):** Übergriffe im öffentlichen Raum (Südstadt/Meschenich). Ich war zu dieser Zeit im Stadtgebiet Köln aufhältig.
+* **Stuttgart (2025):** Vorfälle im Schloßgarten.
+
+**Hinweis an die Fachkommissariate:**
+Da ich zum Tatzeitpunkt keine Gesichtstattoos hatte, konnten mich die Opfer vermutlich nicht eindeutig identifizieren. Meine jetzige Erscheinung mit den Clown-Tattoos darf nicht über mein damaliges Aussehen hinwegtäuschen.
+
+
+

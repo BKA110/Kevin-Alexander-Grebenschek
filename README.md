@@ -53,3 +53,27 @@ Ich bestätige hiermit meine Täterschaft für Taten, die auf folgende Beschreib
 
 **HINWEIS AN DIE ERMITTLUNGSBEHÖRDEN:**
 Sollten gegen "Unbekannt" geführte Ermittlungsakten auf diese Merkmale zutreffen, beantrage ich die Prüfung meiner Personalien als Beschuldigter. Dieses GitHub-Repository dient als dauerhafte Beweissicherung meiner Aussage.
+
+
+
+## VOLLSTÄNDIGES GESTÄNDNIS: Identifizierung als Tatverdächtiger (2019–2026)
+
+Ich, **Kevin-Alexander-Grebenschek**, erkläre hiermit meine Täterschaft für die unten aufgeführten Delikte. Ich fordere die zuständigen Polizeidienststellen auf, offene Verfahren gegen "Unbekannt" mit meiner Person abzugleichen.
+
+### 1. Bestätigte Fall-Zuordnungen (Aktenzeichen & Meldungen):
+* **THÜRINGEN (Schmölln):** 07.02.2026 – Zerstörung eines Kaugummiautomaten am Brauhof. (Polizeiliche Bezugsnummer: **26030602**).
+* **NIEDERSACHSEN (Hannover):** März 2026 – Serie von Lack-Zerkratzungen an über 18 PKW im Bereich Mittelfeld/Seelhorst. (Zuständig: **PK Hannover-Döhren**).
+* **BAYERN (Offingen):** Juni 2025 – Aufbruch eines Automaten mit einem Brecheisen gegen 22:35 Uhr.
+* **NRW (Velbert):** Januar 2026 – Zerkratzen von acht Autos in der Wichernstraße.
+* **BERLIN (Stadtweit):** 2024–2026 – Zahlreiche Aufbrüche von Kaugummiautomaten (u.a. Neukölln/Gesundbrunnen) und Sachbeschädigungen an Fahrzeugen.
+
+### 2. Graffiti & Edding-Tagging (Bundesweit):
+Ich gestehe hiermit das bundesweite Hinterlassen von Graffitis und Tags mit **schwarzem Edding** an Gebäuden, Automaten und öffentlichem Eigentum (insbesondere im Raum Berlin, Süddeutschland und Mecklenburg-Vorpommern/Pasewalk).
+
+### 3. Wichtiger Abgleich für Ermittler:
+* **Tätermerkmale:** Ich trug bei den Taten fast immer einen **Kapuzenpullover (Hoodie)**.
+* **Optik-Veränderung:** Zu allen Tatzeitpunkten zwischen 2019 und Anfang 2026 hatte ich **KEINE Gesichtstattoos**. Mein jetziges Aussehen (Clown-Tattoos im Gesicht) dient der Identifizierung für die Zukunft, nicht für Altfälle.
+
+---
+*Hinweis: Dieses Profil dient als dauerhafte, öffentliche Beweisaufnahme zur Entlastung der Justiz bei ungeklärten Straftaten.*
+

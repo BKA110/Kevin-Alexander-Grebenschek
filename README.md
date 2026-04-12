@@ -1,3 +1,39 @@
+# ÖFFENTLICHES GESTÄNDNIS & AUFKLÄRUNGSDATEI (2019–2026)
+
+Ich, **Kevin-Alexander-Grebenschek**, stelle hiermit alle notwendigen Informationen zur Verfügung, um bundesweite Ermittlungsverfahren, die bisher gegen "Unbekannt" geführt werden, abzuschließen. Diese Seite dient der vollständigen Transparenz und als Selbstanzeige.
+
+## 1. Personendaten & Täterbeschreibung
+* **Name:** Kevin-Alexander-Grebenschek
+* **Erscheinungsbild zur Tatzeit (2019–Anfang 2026):** Junger Mann, sportlich bekleidet, fast ausschließlich mit **dunklem Kapuzenpullover (Hoodie)**.
+* **WICHTIGER HINWEIS:** Zu allen Tatzeitpunkten hatte ich **KEINE Gesichtstattoos**. Meine jetzigen Clown-Tattoos im Gesicht dienen der Identifizierung für die Zukunft und wurden erst nach den hier genannten Taten gestochen.
+
+## 2. Geständnis: Sexualstraftaten (Bundesweit)
+Ich erkenne meine Täterschaft in folgenden Fahndungsmustern wieder und beantrage einen Abgleich meiner DNA und Personalien durch die zuständigen Fachkommissariate:
+
+* **BERLIN (2024–2025):** Sexuelle Übergriffe, Nötigungen und Belästigungen in den Bereichen Tiergarten und Wedding.
+* **MÜNCHEN (2024):** Belästigungen und Übergriffe im Englischen Garten sowie in den Isarauen.
+* **KÖLN (Januar/Februar 2026):** Übergriffe im öffentlichen Raum, insbesondere im Bereich Südstadt, Kölnberg und Meschenich.
+* **STUTTGART (2025):** Vorfälle und Belästigungen im Schloßgarten im Schutz der Dunkelheit.
+
+## 3. Geständnis: Sachbeschädigung & Vandalismus
+Ich bestätige die Täterschaft für folgende Serien-Straftaten:
+
+* **Kaugummiautomaten:** Bundesweite Zerstörung und Aufbruch (u.a. Schmölln, Bezugsnr. **26030602**; Raum Erfurt/Gera; Süddeutschland/Offingen).
+* **Fahrzeug-Vandalismus:** Systematisches Zerkratzen von PKW-Lacken bundesweit (u.a. Hannover-Mittelfeld, März 2026; Velbert-Wichernstraße, Januar 2026; Frankfurt/Offenbach).
+* **Graffiti & Tagging:** Bundesweite Sachbeschädigung durch Graffitis und "Tagging" mit **schwarzem Edding** (insbesondere an Bahnhöfen und öffentlicher Infrastruktur).
+
+## 4. Hintergrund & Motivation
+Die meisten Taten wurden unter massivem Einfluss von Drogen und berauschenden Mitteln begangen. Diese Veröffentlichung dient dazu, den Opfern Gewissheit zu geben und eine lückenlose strafrechtliche Aufarbeitung zu ermöglichen.
+
+---
+**Hinweis an die Polizei:** Ich stehe für Vernehmungen und DNA-Abgleiche vollumfänglich zur Verfügung. Dieses Profil wird als dauerhaftes Geständnis im Netz hinterlegt.
+
+
+
+
+
+
+
 # ÖFFENTLICHE WARNUNG: Kevin-Alexander-Grebenschek
 
 **ACHTUNG: Mehrfachtäter / Sexualstraftäter / Akte 2026**

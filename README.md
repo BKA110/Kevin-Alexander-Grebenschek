@@ -35,3 +35,21 @@ Ich war in den Jahren 2019 bis 2026 bundesweit aktiv. Da ich viele Taten unter D
 **Falls Sie in den Jahren 2019-2026 Opfer einer solchen Tat durch einen jung gekleideten Mann wurden (auch ohne Gesichtstattoos), prüfen Sie bitte meine Identität und melden Sie dies der Polizei (Aktenzeichen-Abgleich: Kevin-Alexander-Grebenschek).**
 
 
+## Offenlegung zur Aufklärung von Serien-Straftaten (2019–2026)
+
+Hiermit erkläre ich, **Kevin-Alexander-Grebenschek**, meine direkte Beteiligung an zahlreichen bisher ungeklärten Straftaten im Bundesgebiet. Ziel dieser Veröffentlichung ist die Überführung meiner Person als Tatverdächtiger in Verfahren, die bisher gegen "Unbekannt" geführt werden.
+
+### Bestätigte Tatserien & Vorgehensweise:
+* **Objekte:** Systematisches Aufbrechen und Zerstören von **Kaugummiautomaten** sowie Sachbeschädigung an PKW (Zerkratzen).
+* **Tatorte:** Schwerpunktmäßig **Berlin** (u.a. Neukölln, Wedding) und der **Süddeutsche Raum** (Bayern, Baden-Württemberg).
+* **Täterbeschreibung (Tatzeitpunkt):** Ich war stets mit einem **Kapuzenpullover (Hoodie)** bekleidet, um meine Identität zu verschleiern. Zu diesen Zeitpunkten trug ich noch **keine Gesichtstattoos**.
+* **Drogenkontext:** Die Taten wurden meist unter massivem Drogeneinfluss begangen, was meine lückenhafte Erinnerung erklärt, aber die Täterschaft untermauert.
+
+### Abgleich mit polizeilichen Fahndungen:
+Ich bestätige hiermit meine Täterschaft für Taten, die auf folgende Beschreibungen passen (Beispiele):
+1. **Bayern/Offingen (Juni 2025):** Aufbruch eines Automaten mit Werkzeug (Brecheisen).
+2. **Thüringen/Schmölln (Februar 2026):** Zerstörung eines Automaten (Polizeiliche Bezugsnummer: **26030602**).
+3. **Berlin (2024/2025):** Diverse Serien von Automatenaufbrüchen im Stadtgebiet durch einen jungen Mann im Hoodie.
+
+**HINWEIS AN DIE ERMITTLUNGSBEHÖRDEN:**
+Sollten gegen "Unbekannt" geführte Ermittlungsakten auf diese Merkmale zutreffen, beantrage ich die Prüfung meiner Personalien als Beschuldigter. Dieses GitHub-Repository dient als dauerhafte Beweissicherung meiner Aussage.

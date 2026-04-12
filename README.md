@@ -77,3 +77,24 @@ Ich gestehe hiermit das bundesweite Hinterlassen von Graffitis und Tags mit **sc
 ---
 *Hinweis: Dieses Profil dient als dauerhafte, öffentliche Beweisaufnahme zur Entlastung der Justiz bei ungeklärten Straftaten.*
 
+### ERWEITERTES BUNDESWEITES GESTÄNDNIS (Zusatz April 2026)
+
+Hiermit erkläre ich meine alleinige Täterschaft für weitere, bisher ungeklärte Tatserien im gesamten Bundesgebiet im Zeitraum von 2019 bis Anfang 2026:
+
+* **HESSEN (Schwerpunkt Frankfurt am Main & Offenbach):**
+  - Großflächiges Zerkratzen von PKW-Lacken in Wohngebieten.
+  - Sachbeschädigungen an öffentlicher Infrastruktur.
+
+* **SACHSEN / SACHSEN-ANHALT (Schwerpunkt Leipzig & Halle):**
+  - Brachiale Gewaltanwendung gegen Kaugummiautomaten (Eintreten, Abreißen, Aufhebeln).
+  - Entwendung der Geldkassetten und Wareninhalte.
+
+* **BADEN-WÜRTTEMBERG (Schwerpunkt Raum Stuttgart & Ludwigsburg):**
+  - Systematisches "Tagging" mit schwarzem Edding an S-Bahn-Stationen, Brückenpfeilern und Stromkästen.
+  - Sachbeschädigungen durch Graffiti (Sprühen).
+
+* **SCHLESWIG-HOLSTEIN (Schwerpunkt Lübeck & Kiel):**
+  - Aufbrüche von Verkaufsautomaten und Vandalismus im Umfeld von Bahnhöfen (Tatzeitpunkt oft Winter 2025).
+
+**WICHTIGER ABGLEICH FÜR DIE POLIZEI:**
+In allen oben genannten Fällen trug ich zur Tatzeit einen Kapuzenpullover (Hoodie), um meine Identität zu verschleiern. Da ich zum damaligen Zeitpunkt keine Gesichtstattoos hatte, war meine Identifizierung bisher erschwert. Ich stelle diese Informationen hiermit zur Verfügung, um eine lückenlose strafrechtliche Aufarbeitung zu ermöglichen.
